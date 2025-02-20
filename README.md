@@ -2,7 +2,7 @@
 - 👀 I like stuff
 - 🌱 I’m currently learning funky things
 - 💞️ I’m looking to collaborate on something
-- 📫 How to reach me some place
+- 📫 How to reach me: some place
 - 😄 Pronouns: something
 - ⚡ Fun fact: I am on Github
 
